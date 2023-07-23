@@ -10,6 +10,6 @@ You can use my code I dont mind its nothing special and I find it flattering tha
 My friend came up with the name check out his stuff he is a god tier developer show him some love
 also hire him 
 # His stuff
-https://github.com/Ugh1849
-https://simplemechanism.net/
-https://ugh1849.itch.io/
+  https://github.com/Ugh1849
+  https://simplemechanism.net/
+  https://ugh1849.itch.io/
